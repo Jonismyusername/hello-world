@@ -10,3 +10,11 @@ That's all for now.
 Regards
 
 JP
+
+Hello again
+
+JP here, three years later, and still looking for something new.
+
+For real this time.
+
+JP
